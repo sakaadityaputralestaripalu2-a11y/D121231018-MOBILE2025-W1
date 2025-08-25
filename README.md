@@ -1,2 +1,2 @@
-# D121231018-MOBILE2025-W1
-Mobile Kelas C
+Nama : Saka Aditya Putra Lestari
+Nim : D121231018
